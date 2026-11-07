@@ -1,4 +1,4 @@
-ear-End Office Cakes in Singapore: The 9-Point Checklist Before You Place the Order
+year-End Office Cakes in Singapore: The 9-Point Checklist Before You Place the Order
 Every December the same email lands in someone's inbox: "Can you organise a cake for the office party?" It sounds like a five-minute task and turns into two weeks of chasing. This is the checklist that prevents that.
 
 1. Who is actually eating it?
